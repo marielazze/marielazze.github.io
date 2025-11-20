@@ -1,2 +1,2 @@
-# mariela.condori.github.io
+# marielazze.github.io
 Mi página web personal
